@@ -2,4 +2,4 @@
 
 💻 I'm a website designer
 
-🧐 Entrepreneur
+⚙️ I love Tech
